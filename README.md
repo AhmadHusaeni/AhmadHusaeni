@@ -1,4 +1,5 @@
-[career_contractspecialist.pdf](https://github.com/AhmadHusaeni/AhmadHusaeni/files/14397639/career_contractspecialist.pdf)
+[career_contractspecialist.pdf](https://github.com/AhmadHusaeni/AhmadHusaeni/files/![1716631631386](https://github.com/AhmadHusaeni/AhmadHusaeni/assets/120613389/dfceed5b-2fc3-4334-80a5-f8a81f7d1ae5)
+14397639/career_contractspecialist.pdf)
 
 
 
